@@ -1,0 +1,5 @@
+- "May the Froce be with you"
+- "I find your lack of faith distrubing"
+- "I am your father"
+- "Do or do not. There's no try"
+- "I've got a bad feeling about this"
